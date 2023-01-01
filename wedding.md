@@ -12,7 +12,7 @@
 
 ## Location
 * Klenje/ Golubac, Serbia, traditional part of the wedding plus church (Location will be shared directly to not doxx myself. Privacy) 
-* Požarevac, Restaurant "Izvor", rest of the wedding (eating, dancing, etc)[https://maglit.me/restaurantlocation](Location)
+* Požarevac, Restaurant "Izvor", rest of the wedding (eating, dancing, etc)[Location](https://maglit.me/restaurantlocation)
 * Bonus: Silver Lake - Veliko Gradište [Location](https://maglit.me/silverlakevg)
 
 ## Plan for the day
@@ -60,7 +60,7 @@ This is we would recommend as you can relax with a morning coffee and breakfast 
 * By car, i.e. from Vienna, you have ~700 km of drive
 * To travel through Hungary you will need "Vignete" [Info](https://maglit.me/vigneteinfo) 
 * *__NOTICE__* : Serbia is not part of EU so you will have to go through border control on the Hungarian-Serbian border and you will need a passport.
-* AVOID: Avoid at all cost the border crossing "Horgoš" as it is a death queue during summer [https://maglit.me/horgosbordercrossing](Location), this is because it is the main highway border
+* AVOID: Avoid at all cost the border crossing "Horgoš" as it is a death queue during summer [Location]([Location](https://maglit.me/horgosbordercrossing)), this is because it is the main highway border
 crossing so a lot of people do not know it about other possibilities.
 * Better alternatives: [Kelebija/Tompa](https://maglit.me/kelebijabordercrossing), [Bajmok](https://maglit.me/bajmokbordercrossing), [Bački vinogradi](https://maglit.me/bajmokbordercrossing)
 * Vienna -> Klenje  (Kelebija/Tompa is set as a border crossing just as an example)
