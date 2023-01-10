@@ -1,8 +1,7 @@
 # Wedding
 
 * This page gathers all the information about our wedding, how it will progress, possible accommodation recommendations, etc.
-***Please contact either of us directly for additional clarification or questions
-Date of the wedding ceremony***
+***Please contact either of us directly for additional clarification or questions***
 
 
 
@@ -13,8 +12,8 @@ Date of the wedding ceremony***
 
 ## Location
 * Klenje/Golubac, Serbia. On the 1st July there will be the traditional part of the wedding and the religious ceremony (exact location will be shared privately)
-* Požarevac, Restaurant "Izvor". Here will be the after-wedding party! Starting time around 16:00 Location. For who wants, accommodation can be booked here as well[Location](https://maglit.me/restaurantlocation)
-* Best accommodation location: Silver Lake - Veliko Gradište (more information in the ‘Travel to Serbia’ section) Location [Location](https://maglit.me/silverlakevg)
+* Požarevac, Restaurant "Izvor". Here will be the after-wedding party! Starting time around 16:00 . For who wants, accommodation can be booked here as well [Location](https://maglit.me/restaurantlocation)
+* Best accommodation location: Silver Lake - Veliko Gradište (more information in the ‘Travel to Serbia’ section)  [Location](https://maglit.me/silverlakevg)
 
 ## Plan for arrival + days before the wedding
 * At your arrival in Belgrade (in case of flight arrival on Thursday 29th), a bus will be organized to transport all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below
