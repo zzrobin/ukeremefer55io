@@ -32,7 +32,7 @@ We will proceed with the traditional part of the wedding – e.g. negotiate the 
 * At the arrival someone will help you get seated and entries/antipasti will be served
 * Shortly after (H. 16:00 ca.) we will arrive and the celebration can get started
 * Shortly before the end of the evening, a bus will accompany you back to Silver Lake
-* ==__*PLEASE, for the next day, do take into account to book your flight accordingly as the night of the wedding might be a bit longer*__.==
+* ==PLEASE, for the next day, do take into account to book your flight accordingly as the night of the wedding might be a bit longer==
 
 ## Plan for Sunday 02.07.2023
 
