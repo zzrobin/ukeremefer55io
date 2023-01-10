@@ -1,8 +1,8 @@
 # Wedding
 
 * This page gathers all the information about our wedding, how it will progress, possible accommodation recommendations, etc.
-Please contact either of us directly for additional clarification or questions
-Date of the wedding ceremony
+***Please contact either of us directly for additional clarification or questions
+Date of the wedding ceremony***
 
 
 
