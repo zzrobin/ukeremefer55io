@@ -32,7 +32,7 @@ We will proceed with the traditional part of the wedding – e.g. negotiate the 
 * At the arrival someone will help you get seated and entries/antipasti will be served
 * Shortly after (H. 16:00 ca.) we will arrive and the celebration can get started
 * Shortly before the end of the evening, a bus will accompany you back to Silver Lake
-* ==PLEASE, for the next day, do take into account to book your flight accordingly as the night of the wedding might be a bit longer==
+* ***PLEASE, FOR THE NEXT DAY, DO TAKE INTO ACCOUNT TO BOOK YOUR FLIGHT ACCORDINGLY AS THE NIGHT OF THE WEDDING MIGHT BE A BIT LONGER***
 
 ## Plan for Sunday 02.07.2023
 
@@ -72,9 +72,9 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 ### Travel by car from Vienna
 * By car, i.e. from Vienna, you have ~700 km of drive
 * To travel through Hungary you will need "Vignete" [Info](https://maglit.me/vigneteinfo) 
-* *__NOTICE__* : Serbia is not part of EU so you will have to go through border control on the Hungarian-Serbian border and you will need a passport.
-* AVOID: Avoid at all cost the border crossing "Horgoš" as it is a death queue during summer [Location]([Location](https://maglit.me/horgosbordercrossing)), this is because it is the main highway border
-crossing so a lot of people do not know of other possibilities.
+***NOTICE : Serbia is not part of EU so you will have to go through border control on the Hungarian-Serbian border and you will need a passport.***
+* ***AVOID: Avoid at all cost the border crossing "Horgoš" as it is a death queue during summer [Location]([Location](https://maglit.me/horgosbordercrossing)), this is because it is the main highway border
+crossing so a lot of people do not know of other possibilities.***
 * Better alternatives: [Kelebija/Tompa](https://maglit.me/kelebijabordercrossing), [Bajmok](https://maglit.me/bajmokbordercrossing), [Bački vinogradi](https://maglit.me/bajmokbordercrossing)
 * Vienna -> Klenje  (Kelebija/Tompa is set as a border crossing just as an example)
 	* [Route 1](https://maglit.me/routoption1) 
