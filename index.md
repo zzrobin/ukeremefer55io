@@ -67,7 +67,7 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 * By plane to Belgrade (we advice coming on Thursday to enjoy also the traditional party on the night before the wedding) and we will pick you up with a bus. 
 * Ideal flight from Vienna: search at [Skyscanner](https://www.skyscanner.at/transport/fluge/vie/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&destinationentityid=27538720&inboundaltsenabled=false&infants=0&originentityid=27547395&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0)
 * Ideal flight from Roma: search at [Skyscanner](https://www.skyscanner.at/transport/fluge/rome/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&inboundaltsenabled=false&infants=0&originentityid=27539793&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0) 
-*  Ideal flight from Barcelona: search at [Skyscanner] (https://www.skyscanner.at/transport/fluge/bcn/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&destinationentityid=27538720&inboundaltsenabled=false&infants=0&originentityid=27548283&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0)
+*  Ideal flight from Barcelona: search at [Skyscanner](https://www.skyscanner.at/transport/fluge/bcn/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&destinationentityid=27538720&inboundaltsenabled=false&infants=0&originentityid=27548283&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0)
 
 ### Travel by car from Vienna
 * By car, i.e. from Vienna, you have ~700 km of drive
