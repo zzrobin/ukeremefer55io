@@ -6,7 +6,7 @@ Please contact either of us directly for additional clarification or questions
 
 
 ## Date of the wedding ceremony
-* Saturday 01.07.2023.
+* Saturday 01.07.2023
 
 
 ## Location
@@ -15,7 +15,8 @@ Please contact either of us directly for additional clarification or questions
 * Best accommodation location: Silver Lake - Veliko Gradište (more information in the ‘Travel to Serbia’ section) Location [Location](https://maglit.me/silverlakevg)
 
 ## Plan for arrival + days before the wedding
-At your arrival in Belgrade (in case of flight arrival on Thursday 29th), we will organize the transportation (bus or cars, depending on who comes by airplane and how the flight arrivals are distributed) for all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below
+At your arrival in Belgrade (in case of flight arrival on Thursday 29th), we will organize the transportation (bus or cars, depending on who comes by airplane and how the flight arrivals are distributed) for all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below.
+
 On the evening of Thursday 29th there will be a dinner altogether at our house in Klenje (transportation from Silver Lake will be organized accordingly) with food, drinks and traditional music
 On Friday it’s ‘rest day’. We will recover our energies, you can explore the area and we can meet for a late lunch altogether in Golubac [Location](http://www.serbia.com/visit-serbia/cultural-attractions/palaces-and-fortresses/golubac-the-guardian-of-the-danube/).
 
@@ -60,12 +61,11 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 * If you prefer something near the restaurant where the wedding will be, we would recommend to book somewhere in Požarevac
 [Booking com](https://maglit.me/pozarevacaccomodations)
 
-* On an additional note: some places like Srebrno Jezero [Hotel](https://hotelsrebrnojezero.rs/) might look already as fully booked on Booking.com but try to always reach out to them via e-mail or phone or, as mentioned again, contact us directly in case of doubts and advice
-
 
 ## Travel to Serbia
 
 * *__NOTICE:__* Serbia is not part of EU so you will have to go through border control (at the airport or on the Hungarian-Serbian border) and you will need a passport
+* *__NOTICE:__* Being Serbia not part of EU, please take into consideration that there are roaming costs with your EU SIM cards - so please let us know in case you want to buy a prepaid Serbian SIM card - for more information check [A1](https://a1.rs/privatni/prepaid/mesecni_planovi)
 ### Travel by plane from Vienna/Rome/Barcelona
 * By plane to Belgrade (we advice coming on Thursday to enjoy also the traditional party on the night before the wedding) and we will pick you up with a bus. 
 * Ideal flight from Vienna: search at [Skyscanner](https://www.skyscanner.at/transport/fluge/vie/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&destinationentityid=27538720&inboundaltsenabled=false&infants=0&originentityid=27547395&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0)
