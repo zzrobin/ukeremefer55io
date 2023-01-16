@@ -6,7 +6,7 @@ Please contact either of us directly for additional clarification or questions
 
 
 ## Date of the wedding ceremony
-* Saturday 01.07.2023.
+* Saturday 01.07.2023
 
 
 ## Location
@@ -15,7 +15,8 @@ Please contact either of us directly for additional clarification or questions
 * Best accommodation location: Silver Lake - Veliko Gradište (more information in the ‘Travel to Serbia’ section) Location [Location](https://maglit.me/silverlakevg)
 
 ## Plan for arrival + days before the wedding
-At your arrival in Belgrade (in case of flight arrival on Thursday 29th), we will organize the transportation (bus or cars, depending on who comes by airplane and how the flight arrivals are distributed) for all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below
+At your arrival in Belgrade (in case of flight arrival on Thursday 29th), we will organize the transportation (bus or cars, depending on who comes by airplane and how the flight arrivals are distributed) for all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below.
+
 On the evening of Thursday 29th there will be a dinner altogether at our house in Klenje (transportation from Silver Lake will be organized accordingly) with food, drinks and traditional music
 On Friday it’s ‘rest day’. We will recover our energies, you can explore the area and we can meet for a late lunch altogether in Golubac [Location](http://www.serbia.com/visit-serbia/cultural-attractions/palaces-and-fortresses/golubac-the-guardian-of-the-danube/).
 
