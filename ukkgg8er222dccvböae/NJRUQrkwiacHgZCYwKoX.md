@@ -55,6 +55,11 @@ where the bus will pick you up an drive you the rest of the trip and at the end 
 Silver lake. Silver lake is very beautiful location during summer as it is one of the most after sought summer destinations. (If anyone wants to do some sightseeing there are a couple of places you could visit, which are listed at the bottom of the wedding guide) 
 This  we would recommend as you can relax with a morning coffee, breakfast and enjoy the lake view.
 [Booking com](https://maglit.me/silverlakeaccomodations)
+* We have already talked to 3 places
+	* [Hotel "Silver Lake"](https://hotelsrebrnojezero.rs/kontakt/)
+	* ["Atos resort"](https://www.atos-srebrnojezero.com/)
+	* "CoCo Srebrno jezero"
+	* All of them are quite good and are around 30 Euros per night with breakfest included. If you prefer you can contact them directly (through E-Mail) and just mention the wedding date and my name (Igor) and they should already know. If there are any issues you can contact me (Igor) and I will book the accomodation for you.
 
 * If you prefer something near the restaurant where the wedding will be, we would recommend to book somewhere in Požarevac
 [Booking com](https://maglit.me/pozarevacaccomodations)
