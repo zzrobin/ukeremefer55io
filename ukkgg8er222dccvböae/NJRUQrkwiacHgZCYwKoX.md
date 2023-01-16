@@ -88,7 +88,7 @@ crossing so a lot of people do not know of other possibilities.
 	* [Route 2](https://maglit.me/routeotion2)
 
 
-### Images for CoCo Bend and Breakfast
+### Images for CoCo B&B
 
 *  ![Picture1](/img/coco1.jpeg)
 *  ![Picture2](/img/coco2.jpeg)
