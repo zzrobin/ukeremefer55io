@@ -54,17 +54,16 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 	* [Hotel "Silver Lake"](https://hotelsrebrnojezero.rs/kontakt/)
 	* ["Atos resort"](https://www.atos-srebrnojezero.com/)
 	* "CoCo Srebrno jezero"
-	* All of them are quite good and are around 30 Euros per night with breakfest included. If you prefer you can contact them directly (through E-Mail) and just mention the wedding date and my name (Igor) and they should already know. If there are any issues you can contact me (Igor) and I will book the accomodation for you.
+	* All of them are quite good and are around 30 Euros per night with breakfast included. If you prefer you can contact them directly (through E-Mail) and just mention the wedding date and my name (Igor) and they should already know. If there are any issues you can contact me (Igor) and I will book the accomodation for you.
 
 * If you prefer something near the restaurant where the wedding will be, we would recommend to book somewhere in Požarevac
 [Booking com](https://maglit.me/pozarevacaccomodations)
-
-* On an additional note: some places like Srebrno Jezero [Hotel](https://hotelsrebrnojezero.rs/) might look already as fully booked on Booking.com but try to always reach out to them via e-mail or phone or, as mentioned again, contact us directly in case of doubts and advice
 
 
 ## Travel to Serbia
 
 * *__NOTICE:__* Serbia is not part of EU so you will have to go through border control (at the airport or on the Hungarian-Serbian border) and you will need a passport
+* *__NOTICE:__* Being Serbia not part of EU, please take into consideration that there are roaming costs with your EU SIM cards - so please let us know in case you want to buy a prepaid Serbian SIM card - for more information check [A1](https://a1.rs/privatni/prepaid/mesecni_planovi)
 ### Travel by plane from Vienna/Rome/Barcelona
 * By plane to Belgrade (we advice coming on Thursday to enjoy also the traditional party on the night before the wedding) and we will pick you up with a bus. 
 * Ideal flight from Vienna: search at [Skyscanner](https://www.skyscanner.at/transport/fluge/vie/beg/230629/?adults=1&adultsv2=1&cabinclass=economy&children=0&childrenv2=&destinationentityid=27538720&inboundaltsenabled=false&infants=0&originentityid=27547395&outboundaltsenabled=false&preferdirects=false&ref=home&rtn=0)
