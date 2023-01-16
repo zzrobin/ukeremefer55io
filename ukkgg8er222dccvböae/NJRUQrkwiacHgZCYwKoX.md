@@ -53,7 +53,8 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 * We have already talked to 3 places
 	* [Hotel "Silver Lake"](https://hotelsrebrnojezero.rs/kontakt/)
 	* ["Atos resort"](https://www.atos-srebrnojezero.com/)
-	* "CoCo Srebrno jezero"
+	* "CoCo Srebrno jezero" - images are attached at the end of the document. If you would like to book this, please contact me and I will call them.
+	   There should be 3-4 rooms still available.
 	* All of them are quite good and are around 30 Euros per night with breakfest included. If you prefer you can contact them directly (through E-Mail) and just mention the wedding date and my name (Igor) and they should already know. If there are any issues you can contact me (Igor) and I will book the accomodation for you.
 
 * If you prefer something near the restaurant where the wedding will be, we would recommend to book somewhere in Požarevac
@@ -82,3 +83,10 @@ crossing so a lot of people do not know of other possibilities.
 	* [Route 1](https://maglit.me/routoption1) 
 	* [Route 2](https://maglit.me/routeotion2)
 
+
+### Images for CoCo Bend and Breakfes
+
+*  ![Picture1](/img/coco1.jpeg)
+*  ![Picture2](/img/coco2.jpeg)
+*  ![Picture3](/img/coco3.jpeg)
+*  ![Picture4](/img/coco4.jpeg)
