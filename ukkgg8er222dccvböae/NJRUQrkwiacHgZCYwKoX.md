@@ -2,24 +2,22 @@
 
 * This page gathers all the information about our wedding, how it will progress, possible accommodation recommendations, etc.
 Please contact either of us directly for additional clarification or questions
-Date of the wedding ceremony
 
 
 
-## Date 
+## Date of the wedding ceremony
 * Saturday 01.07.2023.
-
 
 
 ## Location
 * Klenje/Golubac, Serbia. On the 1st July there will be the traditional part of the wedding and the religious ceremony (exact location will be shared privately)
-* Požarevac, Restaurant "Izvor". Here will be the after-wedding party! Starting time around 16:00 Location. For who wants, accommodation can be booked here as well[Location](https://maglit.me/restaurantlocation)
+* Požarevac, Restaurant "Izvor". Here will be the after-wedding party! Starting time around 16:00 [Location](https://maglit.me/restaurantlocation). For who wants, accommodation could be booked around here as well
 * Best accommodation location: Silver Lake - Veliko Gradište (more information in the ‘Travel to Serbia’ section) Location [Location](https://maglit.me/silverlakevg)
 
 ## Plan for arrival + days before the wedding
-At your arrival in Belgrade (in case of flight arrival on Thursday 29th), a bus will be organized to transport all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below
+At your arrival in Belgrade (in case of flight arrival on Thursday 29th), we will organize the transportation (bus or cars, depending on who comes by airplane and how the flight arrivals are distributed) for all of you who will be staying at Silver Lake. Please let us know your mean of transport and time of arrival so to organize transportations accordingly – more information about flights and possible routes below
 On the evening of Thursday 29th there will be a dinner altogether at our house in Klenje (transportation from Silver Lake will be organized accordingly) with food, drinks and traditional music
-On Friday it’s ‘rest day’. We will recover our energies, you can explore the area and we can meet for a late lunch altogether in Golubac -link to Location.
+On Friday it’s ‘rest day’. We will recover our energies, you can explore the area and we can meet for a late lunch altogether in Golubac [Location](http://www.serbia.com/visit-serbia/cultural-attractions/palaces-and-fortresses/golubac-the-guardian-of-the-danube/).
 
 ## Plan for the wedding day
 
@@ -36,23 +34,20 @@ We will proceed with the traditional part of the wedding – e.g. negotiate the 
 
 ## Plan for Sunday 02.07.2023
 
- * A bus will be transporting you back to the airport. Also here, please let us know time of departure of your flight so we can organize accordingly
+* A bus will be transporting you back to the airport. Also here, please let us know time of departure of your flight so we can organize accordingly
 * For who has the flight in the evening or late afternoon, or for who is not bounded by flights, we will all have together a lunch in Klenje
 
-## Transportation
-* A bus will be organized to transport all of you who will be staying at Silver lake
-* If anybody has free space in their vehicles for an additional person to take with you would
-be also great.
-
+## Transportation in Serbia
+* Transportation from the airport to Silver Lake (and back) will be organized for all of you who will be arriving by plane and staying there at Silver Lake
+* For the traditional evening on Thursday and for the whole wedding day, we will provide transportation so to allow people to drink and enjoy the evening - independently from which mean of transportation you used to get to Serbia
+* If anybody wants to still use their vehicle and has free space for additional people to take in it is of course also fine and we can orgnaize accordingly
 
 
 ## Accommodation options
 * Dear guest, as the wedding will be partly done at our house in Klenje and partly
 in the nearest bigger city Požarevac, we have some recommendations for you where you could book your stay.
 
-* If you prefer to take bus organized by us, we recommend to book somewhere on Sliver Lake (Srebrno jezero) 
-where the bus will pick you up an drive you the rest of the trip and at the end of the wedding back to
-Silver lake. Silver lake is very beautiful location during summer as it is one of the most after sought summer destinations. (If anyone wants to do some sightseeing there are a couple of places you could visit, which are listed at the bottom of the wedding guide) 
+* If you prefer to take the transportation organized by us, we recommend to book somewhere on Sliver Lake (Srebrno jezero) where the bus will pick you up an drive you the rest of the trip and at the end of the wedding back to Silver lake. Silver lake is a very beautiful location during summer as it is one of the most after sought summer destinations. (If anyone wants to do some sightseeing there are a couple of places you could visit, which are listed at the bottom of the wedding guide) 
 This  we would recommend as you can relax with a morning coffee, breakfast and enjoy the lake view.
 [Booking com](https://maglit.me/silverlakeaccomodations)
 * We have already talked to 3 places
@@ -64,8 +59,10 @@ This  we would recommend as you can relax with a morning coffee, breakfast and e
 * If you prefer something near the restaurant where the wedding will be, we would recommend to book somewhere in Požarevac
 [Booking com](https://maglit.me/pozarevacaccomodations)
 
-## Travel to Serbia
+* On an additional note: some places like Srebrno Jezero [Hotel](https://hotelsrebrnojezero.rs/) might look already as fully booked on Booking.com but try to always reach out to them via e-mail or phone or, as mentioned again, contact us directly in case of doubts and advice
 
+
+## Travel to Serbia
 
 * *__NOTICE:__* Serbia is not part of EU so you will have to go through border control (at the airport or on the Hungarian-Serbian border) and you will need a passport
 ### Travel by plane from Vienna/Rome/Barcelona
